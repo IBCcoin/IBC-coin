@@ -1,2 +1,2 @@
 # IBC-coin
-New Economy Cryptocurrency. Huge potential &amp; profit. Invset inthe future. 
+New Economy Cryptocurrency. Huge potential &amp; profit. Invest in the Future. 
